@@ -11,6 +11,7 @@ Things I love:
 #DHS
 #MOBILE LEGENDS
 #Social media
+#lggkz
 
 Hobbies:
 - playing pokemon Go
