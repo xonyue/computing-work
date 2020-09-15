@@ -1,2 +1,3 @@
-- the time when Mr Chan was 'offended for being called a scammer'(Cruz)
+- the time when Mr Chan was 'offended for being called a scammer' (Cruz)
 - the basic services thingy
+- Yee Zhi's kiasuparents account
