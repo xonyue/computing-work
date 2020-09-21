@@ -4,3 +4,7 @@
 - HELLO HELLO??
 - When Yee Zhi get married one day...
 - I want NOTEBOOK! No foolscap paper!!
+- HELLO! WHERE IS MY TEXTBOOK?
+- Math PAU
+- Banks r ah longs(oops)
+- If u dont.....u must stand ah as punishment
