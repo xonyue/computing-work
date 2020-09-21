@@ -2,3 +2,5 @@
 - NO ARC NO MARK
 - Hair line
 - HELLO HELLO??
+- When Yee Zhi get married one day...
+- I want NOTEBOOK! No foolscap paper!!
