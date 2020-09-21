@@ -11,7 +11,6 @@ Things I love:
 #DHS
 #MOBILE LEGENDS
 #Social media
-#bouncy bola
 
 Hobbies:
 - playing pokemon Go
